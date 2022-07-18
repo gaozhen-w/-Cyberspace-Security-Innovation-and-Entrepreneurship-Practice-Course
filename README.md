@@ -1,1 +1,1 @@
-# -Cyberspace-Security-Innovation-and-Entrepreneurship-Practice-Course
+# Cyberspace-Security-Innovation-and-Entrepreneurship-Practice-Course
